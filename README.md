@@ -11,5 +11,5 @@ But I'm still happy because you like my page, aren't you?
 How to use all cheats at once:
 Click on the link to open school cheats:
 https://schoolcheats.net/blooket/
-You may also like Gbasil, I dropped the link below:
+You may also like Gbasil, I dropped the link here:
 https://www.gbasil.dev/blooket
