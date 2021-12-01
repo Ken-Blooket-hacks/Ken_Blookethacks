@@ -5,3 +5,11 @@ Note:
 
 But I'm still happy because you like my page, aren't you?
 :) :> :D :o :3
+
+
+
+How to use all cheats at once:
+Click on the link to open school cheats:
+https://schoolcheats.net/blooket/
+You may also like Gbasil, I dropped the link below:
+https://www.gbasil.dev/blooket
